@@ -1,9 +1,5 @@
 Hi there, thanks for stopping by 👀.
-My name is Ashutosh Karade,I'm properly from Nagpur. I'm 21 year old and I'm in the final year of computer science engineering from PIGCE, in my family member their are only 
-three member including me my father and my mother both retired my strength is that I am creative,well-organized worker with positive attitude towards my career and my life. 
-coming to my weekness i get the work done even if i am sick.My short-term goal is to get an entry-level position to begin my career in a high-level professional environment. 
-My long-term goal is to become a responsible & knowledgeable personality & in a respected position in my company. My hobbies are spending time with friends & video gaming and 
-that's all about me .💞️
+My name is Ashutosh Karade, I'm properly from Nagpur. I'm 22 years old and I'm have completed computer science engineering from PIGCE, in my family member there are only three members including me my father and my mother both retired my strength is that I am a creative, well-organized worker with a positive attitude towards my career and my life. coming to my weakness I get the work done even if I am sick. My short-term goal is to get an entry-level position to begin my career in a high-level professional environment. My long-term goal is to become a responsible & knowledgeable personality & in a respected position in my company. My hobbies are spending time with friends & video gaming and that's all about me. .💞️
 
 
 
